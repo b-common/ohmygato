@@ -1,0 +1,1 @@
+This site will be to provide information on how to bake professional, South Carolina style bagels, at home and a platform for learning about my journey to baking.
